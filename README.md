@@ -1,1 +1,1 @@
-Guitars King
+Guitar Kings
